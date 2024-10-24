@@ -11,7 +11,7 @@
 
 
 
-📫 How to reach me: sriramofficial.sit@gmail.com, LinkedIn
+📫 How to reach me: sriramofficial.sit@gmail.com, LinkedIn : https://www.linkedin.com/in/sriramofficialsit/
 
 
 😄 Pronouns: He/Him

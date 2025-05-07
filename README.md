@@ -1,7 +1,7 @@
 👋 Hi, I’m @Sriramofficialsit
 
 
-👀 I’m interested in Full Stack Development, Ethical Hacking, and building secure digital solutions.
+👀 I’m interested in Full Stack Development,and building secure digital solutions.
 
 
 🌱 I’m currently learning the MERN stack at Guvi and exploring new ways to integrate technology with sustainable agriculture.
